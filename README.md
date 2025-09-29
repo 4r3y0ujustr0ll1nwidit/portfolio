@@ -81,7 +81,7 @@
 
 <p align="center">
   <a href="https://www.google.com/search?q=what+is+gtihub+commit" target="_blank">
-    <img src="https://youtube.com/@duck_3nthu5ia5t?si=5GTs3LCigpI1ndjd"/>
+    <img src="https://youtu.be/xvFZjo5PgG0?si=0j7WHI_q3Z0Zf_UQ"/>
   </a>
 </p>
 
